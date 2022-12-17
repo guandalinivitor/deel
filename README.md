@@ -1,4 +1,4 @@
-## Hey, Vitor here 👨🏼‍💻, who made this test. Hope to get an answer from you guys. Will be waiting.
+## Hey, Vitor here 👨🏼‍💻, who made this test.
 
 ## Some texts to get in touch about how I solved the questions. 🙏🏼
 
